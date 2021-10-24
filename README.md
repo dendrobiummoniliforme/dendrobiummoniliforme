@@ -1,3 +1,5 @@
-- 👋 Hi, I’m @dendrobiummoniliforme
-- This is under construction!!
-- [Linktree](https://linktr.ee/dendrobiummoniliforme)
+Hello 😊
+
+Explorer, I love to take on random projects and expand my horizons.
+
+[Linktree](https://linktr.ee/dendrobiummoniliforme)
